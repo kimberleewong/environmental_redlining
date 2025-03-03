@@ -1,4 +1,4 @@
-# Prioritizing Potential Aquaculture
+# Environmental Redlining
 
 Kimberlee Wong - December 7, 2024
 
